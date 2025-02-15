@@ -12,4 +12,4 @@ Saya seorang **Mahasiswa** di [Satya Wacana Christian University]([https://www.d
 </a>
 </p>
 
-Jika kamu tertarik untuk berkenalan denganku, silakan ikuti akun [Linkedin](https://www.linkedin.com/in/satss101/)ku ya.
+Jika kamu tertarik untuk berkenalan denganku, silakan ikuti akun [Linkedin](https://www.linkedin.com/in/satss121/)ku ya.
